@@ -10,6 +10,7 @@ I plan to study neural network and shaders, but my level of math (and I'm lazy.)
 
 ## Contact
 https://bio.link/evanechecssss
+
 I often chat on Discord: ⚘'Ivan'⚘#0363
 
 <!--
