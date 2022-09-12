@@ -1,7 +1,6 @@
 ### Hi there 👋
 
 I am a Russian programmer, but not Siberian, ✨Urals✨. 💖
-For some reason I have hidden my repositories. Right now I am not working on projects and code, please understand me...
 
 ## How did I get to know the code?
 I always wanted to create my own game, but all my attempts failed and I had no ideas, but because of that I studied programming and learned to work with information and content.
