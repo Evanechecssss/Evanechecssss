@@ -1,11 +1,6 @@
 ### Hi there 👋
 
-I am a Russian programmer, but not Siberian, ✨Urals✨. 💖
-
-## How did I get to know the code?
-I always wanted to create my own game, but all my attempts failed and I had no ideas, but because of that I studied programming and learned to work with information and content.
-Now I'm developing mods for the game minecraft, making orders. 
-I plan to study neural network and shaders, but my level of math (and I'm lazy.) doesn't let me do that and I don't have time for that yet. 
+I am a Russian programmer, ✨Urals✨. 💖
 
 ## Contact
 https://bio.link/evanechecssss
