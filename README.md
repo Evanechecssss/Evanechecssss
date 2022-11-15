@@ -1,11 +1,16 @@
 ### Hi there 👋
 
-I am a Russian programmer, ✨Urals✨. 💖
+I am a Russian programmer from ✨Urals✨.
 
 ## Contact
-https://bio.link/evanechecssss
+[https://vk.com/evanechecs](VK)
+[https://www.curseforge.com/members/evanechecssss/projects](MinecraftMods)
+[https://t.me/Evanechecssss](TG)
+So, I often chat on Discord: ⚘'Ivan'⚘#0363
 
-I often chat on Discord: ⚘'Ivan'⚘#0363
+- 🤔 I’m looking for help with math, yes
+- 🥲 Fun fact: Sometimes people have strange reactions to my appearance ^ . ^
+     [Like that](https://www.youtube.com/clip/Ugkxw0U2DHsg8ksUPDh1W6V9IPdkON3R-wG3)
 
 <!--
 **Evanechecssss/Evanechecssss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
