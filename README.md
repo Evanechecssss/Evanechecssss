@@ -1,4 +1,4 @@
-### Hi there 👋
+### ;]
 
 I am a Russian programmer from ✨Urals✨.
 
@@ -8,6 +8,7 @@ I am a Russian programmer from ✨Urals✨.
 [https://t.me/Evanechecssss](TG)
 So, I often chat on Discord: ⚘'Ivan'⚘#0363
 
+## About Me
 - 🤔 I’m looking for help with math, yes
 - 🥲 Fun fact: Sometimes people have strange reactions to my appearance ^ . ^
      [Like that](https://www.youtube.com/clip/Ugkxw0U2DHsg8ksUPDh1W6V9IPdkON3R-wG3)
