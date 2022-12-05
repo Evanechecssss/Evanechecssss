@@ -1,5 +1,5 @@
 ### Hi ;]
-I am a Russian programmer from ✨Urals✨.
+I am a Russian programmer from ✨Urals✨ 🤍💙❤️.
 
 ## Contact
 - [VK](https://vk.com/evanechecs)
