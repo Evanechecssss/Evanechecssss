@@ -5,10 +5,12 @@ I am a Russian programmer from ✨Urals✨ 🤍💙❤️.
 - [VK](https://vk.com/evanechecs)
 - [MinecraftMods](https://www.curseforge.com/members/evanechecssss/projects)
 - [TG](https://t.me/Evanechecssss)
+- [Spotify](https://open.spotify.com/user/52kq729rsnvgra6nqyddx46x6)
 - So, I often chat on Discord: ⚘'Ivan'⚘#0363
 
 ## About Me
 - 🤔 I’m looking for help with math, yes
+- 😍 Stranger things 4 is my favorite netflix series <3
 - 🥲 Fun fact: Sometimes people have strange reactions to my appearance ^ . ^
 [Like that](https://www.youtube.com/clip/Ugkxw0U2DHsg8ksUPDh1W6V9IPdkON3R-wG3)
 
